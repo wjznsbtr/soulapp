@@ -2,7 +2,7 @@
 这一世，你将重生为动物，开启不一样的一生。
 
 ## 使用方法
-访问网页版链接:https://tbox.alipay.com/inc/share/202510AP2cAQ05848119?platform=WebService&conversationId=20251026QLAG20306353
+访问网页版链接:https://tbox.alipay.com/inc/share/202510AP2cAQ05848119?platform=WebService
 点击重开即可开始对话。
 
 ## 介绍
